@@ -1,0 +1,6 @@
+object sssssss {
+	
+	dsañlfgkjdasgl
+	
+	
+}
